@@ -1,1 +1,0 @@
-# jihakim1323.github.io
